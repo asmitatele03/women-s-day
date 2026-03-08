@@ -34,11 +34,5 @@ Women across the world are leading in **space exploration, governance, innovatio
 
 From **science labs to space missions 🚀, from leadership to innovation 💡**, women continue to shape the future of humanity.
 
----
-
 🌷 **Happy International Women’s Day!**
 Let’s celebrate courage, intelligence, kindness, and leadership. 💜👩‍🚀
-
----
-
-If you want, I can also make a **more aesthetic GitHub README version with badges, icons, and a header banner** so it looks **very impressive on your GitHub profile**. 🚀✨
