@@ -14,17 +14,15 @@ Women across the world are leading in **space exploration, governance, innovatio
 * 🔬 **Ritu Karidhal** – “Rocket Woman of India,” a senior scientist at Indian Space Research Organisation who worked on the **Mars Orbiter Mission**.
 * 🔭 **Tessy Thomas** – Known as the **“Missile Woman of India”**, key scientist behind India’s missile programs.
 
----
+🌏 Powerful Women Leaders (India & World)
 
-## 🌏 Powerful Women Leaders (India & World)
-
-### 🇮🇳 India
+🟧🤍🟩 India
 
 * 👩‍💼 **Indira Gandhi** – First and only woman Prime Minister of India.
 * 👩‍💼 **Droupadi Murmu** – Current President of India.
 * 👩‍💼 **Nirmala Sitharaman** – One of the most influential economic leaders in India.
 
-### 🌍 World
+🌍 World
 
 * 👩‍💼 **Angela Merkel** – One of the most powerful leaders in Europe.
 * 👩‍💼 **Jacinda Ardern** – Known for empathetic and progressive leadership.
