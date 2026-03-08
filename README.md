@@ -28,8 +28,6 @@ Women across the world are leading in **space exploration, governance, innovatio
 * 👩‍💼 **Jacinda Ardern** – Known for empathetic and progressive leadership.
 * 👩‍💼 **Kamala Harris** – First woman Vice President of the U.S.
 
----
-
 ## 💫 A Small Reminder
 
 > 🌟 **“Empowered women empower the world.”**
