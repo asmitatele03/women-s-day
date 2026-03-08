@@ -1,8 +1,4 @@
-You can post something like this in your **GitHub README**. It’s informative, inspiring, and clean for a README file. ✨
-
----
-
-## 🌸 International Women’s Day – Celebrating Strength & Inspiration
+🌸 International Women’s Day – Celebrating Strength & Inspiration
 
 **International Women’s Day (March 8)** is celebrated to honor the achievements of women in **science, leadership, politics, technology, and society**. 💜
 
@@ -10,9 +6,7 @@ It began in the **early 20th century** during the movement for **women’s right
 
 Women across the world are leading in **space exploration, governance, innovation, and research**, proving that determination and knowledge can change the world. 🚀
 
----
-
-## 🚀 Inspiring Women in Space & Science
+ 🚀 Inspiring Women in Space & Science
 
 * 👩‍🚀 **Kalpana Chawla** – First woman of Indian origin in space; astronaut at NASA.
 * 👩‍🚀 **Sunita Williams** – Indian-origin astronaut who spent over **300+ days in space**.
