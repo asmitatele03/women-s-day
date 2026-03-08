@@ -1,7 +1,6 @@
 🌸 International Women’s Day – Celebrating Strength & Inspiration
 
-
-**International Women’s Day (March 8)** is celebrated to honor the achievements of women in **science, leadership, politics, technology, and society**. 💜
+International Women’s Day (March 8) is celebrated to honor the achievements of women in **science, leadership, politics, technology, and society**. 💜
 
 It began in the **early 20th century** during the movement for **women’s rights, equality, and better working conditions**. Today, it is a global day to celebrate women’s contributions and encourage **gender equality and empowerment**. 🌍✨
 
